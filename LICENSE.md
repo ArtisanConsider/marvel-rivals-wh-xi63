@@ -1,4 +1,4 @@
-
+Experience marvel rivals wh like never before with marvel rivals wh top Aim Assist - enemy position predictor and enhanced hero vision, the #1 aim assist. Includes enemy position
 
 
 
